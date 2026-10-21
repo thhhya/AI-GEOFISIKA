@@ -1,0 +1,2 @@
+# AI-GEOFISIKA
+Tugas
